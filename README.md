@@ -1,0 +1,1 @@
+# Patika_Not_Ortalamasi
